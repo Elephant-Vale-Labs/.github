@@ -22,7 +22,7 @@ We're builders, problem-solvers, and curious minds turning ambitious ideas into 
 
 Late-night coding sessions. Big ideas. Quiet breakthroughs.
 
-**[Listen to our Spotify playlist](PASTE-SPOTIFY-LINK-HERE)**
+**[Listen to our Spotify playlist](https://open.spotify.com/playlist/1jIhtvuWEV8Vk8o3he4V8Y)**
 
 ---
 
